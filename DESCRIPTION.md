@@ -1,4 +1,4 @@
-Hi 👋 I'm Aldhair and I'm a student
+Hi 👋 I'm Aldhair and I'm a good boy
 
 AI 🤖 software development student 🧑‍💻
 
